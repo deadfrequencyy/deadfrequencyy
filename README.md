@@ -103,5 +103,5 @@
 <br>
 <br>
   <div align="center">
-hyperlaser graphics from <a href="https://www.tumblr.com/sector2007">@sector2007</a> on tumblr
+main graphics from <a href="https://www.tumblr.com/sector2007">@sector2007</a> on tumblr
   </div>
