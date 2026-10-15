@@ -1,4 +1,7 @@
 hi, i'm gryphon. i tried to make this pretty. i #gaveuponthatthough.
+<br>
+<br>
+please note: if you don't like what you see here, please block me!!! you are not a bad person for blocking people, please curate your internet experience, you have the right to do so!
 
 <br>
 
