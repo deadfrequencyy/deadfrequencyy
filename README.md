@@ -23,6 +23,8 @@
     atabook (wip)
   </p>
   <img src="https://64.media.tumblr.com/91e26657514b23f9bf52b41d0a751bba/69ec21366db34673-91/s2048x3072/0526e7ab48b3a3e36b5e3c68b45d67eeaade6be8.pnj" width="700px" />
+    <br>
+    <br>
   <details>
   <summary><ins>about me</ins></summary>
 
