@@ -6,7 +6,8 @@
   <br>
   <img src="https://64.media.tumblr.com/ade27f9e27d15f5d4a27f677a34c3c90/69ec21366db34673-8b/s1280x1920/86790ece17d5d122c2f59c1ba25f60d7c9acc852.pnj" width="200px" />
     <br>
-  <img src="https://64.media.tumblr.com/3fb95a9cb1be69abfe77e233aebe7221/685320e307a1d648-91/s250x400/ce5b76d5e9492229c7a236ecf59b9bb38e4bf054.gif" />
+    <br>
+  <img src="https://64.media.tumblr.com/3fb95a9cb1be69abfe77e233aebe7221/685320e307a1d648-91/s250x400/ce5b76d5e9492229c7a236ecf59b9bb38e4bf054.gif" width="200px" />
   <br>
   <br>
   <p>
