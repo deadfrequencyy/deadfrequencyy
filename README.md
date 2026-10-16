@@ -21,7 +21,7 @@
         <br>
         <br>
         <p>新bookㅤㅤㅤstraw (wip)ㅤㅤㅤ<a href="https://pronouns.cc/@deadfrequency">pronouns.cc</a></p>
-        <p>spacehey (wip)ㅤㅤㅤart blogㅤㅤㅤguns.lol (wip)</p>
+        <p><a href="https://sprout.spot/canvas/6ab554b3a88ded9d40e227c0">sprout.spot</a>ㅤㅤㅤart blogㅤㅤㅤ<a href="https://guns.lol/deadfrequency">guns.lol</a></p>
         <br>
       </td>
     </tr>
