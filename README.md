@@ -20,8 +20,8 @@
         <img src="https://64.media.tumblr.com/367fdbaecba2961b4807a89dcfd1496f/c6344a0d785c88fc-ee/s1280x1920/8dfcf43870a618e6385534f9ed6c38164167be06.png" width="350px" />
         <br>
         <br>
-        <p>新bookㅤㅤㅤstraw (wip)ㅤㅤㅤ<a href="https://pronouns.cc/@deadfrequency">pronouns.cc</a></p>
-        <p><a href="https://sprout.spot/canvas/6ab554b3a88ded9d40e227c0">sprout.spot</a>ㅤㅤㅤart blogㅤㅤㅤ<a href="https://guns.lol/deadfrequency">guns.lol</a></p>
+        <p><a href="https://deadfrequency.atabook.org">新book</a>ㅤㅤㅤstraw (wip)ㅤㅤㅤ<a href="https://pronouns.cc/@deadfrequency">pronouns.cc</a></p>
+        <p><a href="https://sprout.spot/canvas/6ab554b3a88ded9d40e227c0">sprout.spot</a>ㅤㅤㅤ<a href="https://www.tumblr.com/deadfrequency">main blog</a>ㅤㅤㅤ<a href="https://guns.lol/deadfrequency">guns.lol</a></p>
         <br>
       </td>
     </tr>
