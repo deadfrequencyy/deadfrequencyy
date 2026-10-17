@@ -1,1 +1,1 @@
-$$\color{green}This\ is\ a\ standalone\ block\ of\ green\ text$$
+${\color{green}\text{This is a standalone block of green text}}$
