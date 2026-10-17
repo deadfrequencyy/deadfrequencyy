@@ -132,7 +132,7 @@
             <li> ㅤanti-agere ㅤ+ ㅤanti-petre ㅤ(+people who sexualize these)</li>
             <br>
             <li> ㅤhellaverse fandoms ㅤ[hh/hb]</li>
-            <li> ㅤtcooal</li>
+            <li> ㅤtcoaal</li>
             <li> ㅤtfc</li>
           </ul>
           <p><a href ="https://prns.cc/ocmrhp">extended list</a></p>
