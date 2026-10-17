@@ -55,7 +55,7 @@ $${\color{#9d6325}\large\text{ut/dr area, phighting area}}$$
 
 $${\color{#9d6325}\large\text{close friends/party: ron, aether, vony, eden}}$$
 
-$${\color{#9d6325}\large\text{i won't always use chat. please be patient w/ me.ㅤ─ㅤpossibly selectively mute?}}$$
+$${\color{#9d6325}\large\text{i won't always use chat. please be patient w/ me.ㅤ─ㅤselectively mute?}}$$
 
 $${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
 
