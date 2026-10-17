@@ -25,9 +25,11 @@ $${\color{#8d2626}\huge\text{‧₊˚ ⋅ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅ .𖥔 ݁ 
 
 <details>
 <summary></summary>
+<br>
 <table align="center">
 <tr>
 <td align="center">
+<br><br>
 
 $${\color{#9d6325}\huge\text{⤷ㅤㅤpony town info}}$$
 
@@ -63,16 +65,20 @@ $${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
 
 <img src="https://64.media.tumblr.com/f76d8da5bf3c7489899723c856fd5a37/e5a0f91c189d8b09-04/s250x400/ea013eb271fa7620f65b79cd1d8746d92caf8233.gifv" align="center">
 
-<br><br><br>
+<br>
+<br>
+<br>
 
 </td>
 </tr>
 </table>
 </details>
 
+<br><br>
+
 $${\color{#8d2626}\large\text{✦ . ㅤ  ㅤㅤㅤㅤㅤㅤㅤEND ENTRYㅤㅤㅤ ㅤㅤㅤㅤ ㅤ . ✦}}$$
 
-<br>
+<br><br><br>
 
 <img src="https://64.media.tumblr.com/0696abe19f59af06f2c1d7eab656d395/e5a0f91c189d8b09-e7/s1280x1920/e2d8cbed52832808b984e0e22201bfe9f7f0d69e.pnj" align="center" width="700px">
 
