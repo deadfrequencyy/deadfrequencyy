@@ -60,7 +60,7 @@
             spd,ㅤmisophonia,ㅤgeneral dissociation struggles
           </p>
           <p>+</p>
-          <p>plural/sys</p>
+          <p><a href="https://pluralkit.xyz/s/abftxx">plural/sys</a></p>
           <br>
           <img src="https://64.media.tumblr.com/5571f94d7048cbf9ee4848a48cb831ba/f6bf05c24e871e9b-d5/s2048x3072/07dbdac01cc85ae6542c7a39b36524a1935d0e15.gifv" width="500px" />
           <br>
