@@ -83,12 +83,30 @@
       <tr>
         <td align="center">
           <br>
-          <h3>byi</h3>
+          <h3>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbyiㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</h3>
           <br>
           <img src="https://64.media.tumblr.com/5571f94d7048cbf9ee4848a48cb831ba/f6bf05c24e871e9b-d5/s2048x3072/07dbdac01cc85ae6542c7a39b36524a1935d0e15.gifv" width="500px" />
           <br>
           <br>
-          <ul>
+          <ul align="left">
+            <li>ㅤgenerally just always int with caution</li>
+            <br>
+            <li>ㅤidm if adults interactㅤㅤ-ㅤㅤdon't try and bmf if ur 25+</li>
+            <li>ㅤon a related note, so long as ur old enough to be on the web idm if you int</li>
+            <li>ㅤvery bad at socializing + reaching out first</li>
+            <li>ㅤi cuss, sometimes excessively</li>
+            <li>ㅤa la plurality i can't guarantee i will always remember everything or act 100% the<br>same all the time</li>
+            <li>ㅤi am mentally ill + disabled! i sometimes won't have the energy to do normal stuff, sorry!ㅤ</li>
+            <li>ㅤi can't always mask my emotions very well + i'm bad with tone, so please lmk if i'm being snippy</li>
+            <li>ㅤsimilarly, if i'm acting different & it's a pattern please tell me. #science</li>
+            <li>ㅤi sometimes experience verbal shutdowns</li>
+            <li>ㅤi can be very sensitive at times</li>
+            <li>ㅤi am very sex repulsed, and i only tolerate non-directed sex jokes from close friends</li>
+            <li>ㅤNO. FLIRTING. i don't struggle to differentiate emotions it just makes me wildly uncomfortable</li>
+            <br>
+            <br>
+            <li>ㅤi cannot handle littles very well, they're allowed to interact i'm just awkward and i don't want to<br>
+            accidentally infantilize anybody</li>
           </ul>
           <p><a href="https://prns.cc/ulxmco">extended list</a></p>
           <br>
@@ -125,9 +143,78 @@
   </details>
   <details>
     <summary><ins>fandoms</ins></summary>
+    <br>
+    <table>
+      <tr>
+        <td align="center">
+          <br>
+          <p>
+            ㅤㅤㅤundertaleㅤdeltaruneㅤtf2ㅤphmㅤiron lungㅤx-menㅤsthㅤcreepypastasㅤㅤㅤ
+          </p>
+          <p>
+            ㅤㅤㅤgravity fallsㅤphightingㅤslendytubbiesㅤmcyt (hermits primarily)ㅤㅤㅤ
+          </p>
+          <p>
+            ㅤㅤㅤindie web revivalㅤㅤㅤㅤthere's prob more
+          </p>
+          <br>
+        </td>
+      </tr>
+    </table>
   </details>
   <details>
     <summary><ins>pony town info</ins></summary>
+    <br>
+    <table>
+      <tr>
+        <td align="center">
+          <p>ㅤsafe serverㅤ</p>
+      </tr>
+    </table>
+    <table>
+      <tr>
+        <td align="center">
+          <p>ㅤaround spawn, near/in bakery, sth, tf2/valve, running around w/ friendsㅤ</p>
+        </td>
+      </tr>
+    </table>
+    <table>
+      <tr>
+        <td align="center">
+          <p>ㅤi'm almost always clinging 2 my friends, otherwise i'm pony watching in silenceㅤ</p>
+        </td>
+      </tr>
+    </table>
+    <table>
+      <tr>
+        <td align="left">
+          <ul>
+            <br>
+            <li>ㅤonline: actively on-tab</li>
+            <li>ㅤbusy: working on a character or doing somth off-tabㅤ</li>
+            <li>ㅤlooking for chat: very much free to interact!</li>
+            <br>
+          </ul>
+        </td>
+      </tr>
+    </table>
+    <table>
+      <tr>
+        <td align="left">
+          <ul>
+            <br>
+            <li>ㅤdon't send me random friend requests!!! i don't want to add randoms</li>
+            <br>
+            <li>ㅤc+h usually ok so long as i'm not on dni, otherwise only do so if you're excluded from the statusㅤ</li>
+            <li>ㅤno kisses please! i know it's not supposed to be weird, i just don't like it. nuzzles r fine though idcㅤ</li>
+            <li>ㅤi'd prefer if you don't cover me unless ur a friend and we're huddling. otherwise, i won't make a fuss it's just annoyingㅤ</li>
+            <li>ㅤno copying! go follow a tut or make ur own stuffs. inspo is 100% ok though</li>
+            <li>ㅤi might not always use the chat! it's just a personal choice, stresses me out less. i pref party chat + my friend group's vcㅤ</li>
+            <br>
+          </ul>
+        </td>
+      </tr>
+    </table>
   </details>
   
 </div>
@@ -148,4 +235,19 @@
       </td>
     </tr>
   </table>
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 </div>
+
+<details>
+  <summary><ins>creds</ins></summary>
+  <h3>tumblr</h3>
+  <p>pixopix, spacecolonie, junabuggy, angel0fnothing, missing a few more</p>
+  <h3>other</h3>
+  <p>glitter-graphics.com</p>
+</details>
