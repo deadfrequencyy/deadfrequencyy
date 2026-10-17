@@ -9,13 +9,48 @@ $${\color{#8d2626}\large\text{✦ .ㅤ@deadfrequencyyㅤ─ㅤENTRYㅤ:ㅤQUILL�
 
 $${\color{#9d6325}\text{⤷ㅤㅤheadmate within the ant hill collective}}$$
 
-$${\color{#b39d29}\large\text{gryphon ╱ quillㅤ─ㅤ" ace of spades "}}$$
+,
 
-$${\color{#c3d82b}\huge\text{♦ ♤}}$$
+$${\color{#c3d82b}\huge\text{♦ ♤ㅤaiwcㅤ♤ ♦}}$$
 
 $${\color{#b39d29}\large\text{he/it ㅤ᭥ㅤ minor}}$$
 
-$${\color{#9d6325}\text{semi-fictiveㅤ─ㅤsourcemates f2i}}$$
+
+$${\color{#9d6325}\large\text{semi-fictiveㅤ─ㅤsourcemates f2i}}$$
+
+<br><br>
+
+$${\color{#8d2626}\huge\text{‧₊˚ ⋅ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅ .𖥔 ݁ ˖ ✦ ݁ ˖ 𖥔 ‧₊˚ ⋅ .✦ ݁ ˖ 𖥔 ‧₊˚ ⋅}}$$
+
+<br><br>
+
+$${\color{#9d6325}\huge\text{⤷ㅤㅤpony town info}}$$
+
+$${\color{#b39d29}\large\text{「✔」okay:}}$$
+$${\color{#b39d29}\large\text{c+h/cudcomf unless on dni(uf)ㅤ,ㅤboopingㅤ,ㅤinspo}}$$
+$${\color{#b39d29}\large\text{nuzzlingㅤ,ㅤpartial covering (esp. in crowded areas)}}$$
+
+$${\color{#c3d82b}\large\text{「✖」don't:}}$$
+$${\color{#c3d82b}\large\text{kissingㅤ,ㅤrandom full covering (uf)ㅤ,ㅤanyth inappropriate}}$$
+$${\color{#c3d82b}\large\text{random friend requestsㅤ,ㅤrandom party invites}}$$
+
+$${\color{#b39d29}\large\text{「ⓘ」statuses:}}$$
+$${\color{#b39d29}\large\text{online: f2i , prob w/ friends}}$$
+$${\color{#b39d29}\large\text{lfc: int. enc. , likely bored}}$$
+$${\color{#b39d29}\large\text{lfr: acting in characterㅤ─ㅤi never use this one}}$$
+$${\color{#b39d29}\large\text{away: offtab for 10+ mins}}$$
+$${\color{#b39d29}\large\text{busy: either working on somth or on dni}}$$
+
+$${\color{#9d6325}\large\text{「ⓘ」misc. info:}}$$
+
+$${\color{#9d6325}\large\text{common areas: near the bakery, spawn, sth area, tf2 area,}}$$
+$${\color{#9d6325}\large\text{ut/dr area, phighting area}}$$
+
+$${\color{#9d6325}\large\text{close friends/party: ron, aether, vony, eden}}$$
+
+$${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
+
+<br><br>
 
 <img src="https://64.media.tumblr.com/573d4f60fa1a2817e755a94084f80082/e5a0f91c189d8b09-a6/s250x400/4f4318b63919adbf75ddab5efa86a495c11ba11d.gifv" align="center">
 
@@ -23,7 +58,7 @@ $${\color{#9d6325}\text{semi-fictiveㅤ─ㅤsourcemates f2i}}$$
 
 <img src="https://64.media.tumblr.com/f76d8da5bf3c7489899723c856fd5a37/e5a0f91c189d8b09-04/s250x400/ea013eb271fa7620f65b79cd1d8746d92caf8233.gifv" align="center">
 
-<br>
+<br><br><br>
 
 $${\color{#8d2626}\large\text{✦ . ㅤ  ㅤㅤㅤㅤㅤㅤㅤEND ENTRYㅤㅤㅤ ㅤㅤㅤㅤ ㅤ . ✦}}$$
 
