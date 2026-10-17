@@ -17,20 +17,18 @@ $${\color{#b39d29}\large\text{he/it ㅤ᭥ㅤ minor}}$$
 
 $${\color{#9d6325}\text{semi-fictiveㅤ─ㅤsourcemates f2i}}$$
 
+<img src="https://64.media.tumblr.com/573d4f60fa1a2817e755a94084f80082/e5a0f91c189d8b09-a6/s250x400/4f4318b63919adbf75ddab5efa86a495c11ba11d.gifv" align="center">
+
+<img src="https://64.media.tumblr.com/fec3f27de8931ae35f44c3f18a8e8cee/e5a0f91c189d8b09-3c/s250x400/4bc1f4af9c681d59878e26efb576e1a8f5700e7e.gifv" align="center">
+
+<img src="https://64.media.tumblr.com/f76d8da5bf3c7489899723c856fd5a37/e5a0f91c189d8b09-04/s250x400/ea013eb271fa7620f65b79cd1d8746d92caf8233.gifv" align="center">
+
+<br>
+
 $${\color{#8d2626}\large\text{✦ . ㅤ  ㅤㅤㅤㅤㅤㅤㅤEND ENTRYㅤㅤㅤ ㅤㅤㅤㅤ ㅤ . ✦}}$$
 
 <br>
 
 <img src="https://64.media.tumblr.com/0696abe19f59af06f2c1d7eab656d395/e5a0f91c189d8b09-e7/s1280x1920/e2d8cbed52832808b984e0e22201bfe9f7f0d69e.pnj" align="center" width="700px">
 
-</div>
-
-<div align="center">
-
-<img src="https://64.media.tumblr.com/573d4f60fa1a2817e755a94084f80082/e5a0f91c189d8b09-a6/s250x400/4f4318b63919adbf75ddab5efa86a495c11ba11d.gifv" align="left">
-
-<img src="https://64.media.tumblr.com/fec3f27de8931ae35f44c3f18a8e8cee/e5a0f91c189d8b09-3c/s250x400/4bc1f4af9c681d59878e26efb576e1a8f5700e7e.gifv" align="center">
-
-<img src="https://64.media.tumblr.com/f76d8da5bf3c7489899723c856fd5a37/e5a0f91c189d8b09-04/s250x400/ea013eb271fa7620f65b79cd1d8746d92caf8233.gifv" align="right">
-  
 </div>
