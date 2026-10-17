@@ -57,7 +57,7 @@ $${\color{#9d6325}\large\text{close friends/party: ron, aether, vony, eden}}$$
 
 $${\color{#9d6325}\large\text{i won't always use chat. please be patient w/ me.}}$$
 
-$${\color{#9d6325}\text{possibly selectively mute}}$$
+$${\color{#9d6325}\large\text{i won't always use chat. please be patient w/ me.}}$$
 
 $${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
 
