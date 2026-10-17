@@ -65,4 +65,10 @@ $${\color{#8d2626}\large\text{✦ . ㅤ  ㅤㅤㅤㅤㅤㅤㅤEND ENTRYㅤㅤㅤ
 
 <img src="https://64.media.tumblr.com/0696abe19f59af06f2c1d7eab656d395/e5a0f91c189d8b09-e7/s1280x1920/e2d8cbed52832808b984e0e22201bfe9f7f0d69e.pnj" align="center" width="700px">
 
+<br>
+<br>
+<br>
+
+<a href="https://prns.cc/nnuetm" align="center">pronouns.cc</a>
+
 </div>
