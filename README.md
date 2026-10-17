@@ -1,1 +1,1 @@
-${\color{green}\text{This is a standalone block of green text}}$
+$${\color{red}\text{this page is under construction}}$$
