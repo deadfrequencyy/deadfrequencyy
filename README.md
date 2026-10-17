@@ -9,11 +9,11 @@ $${\color{#8d2626}\large\text{✦ .ㅤ@deadfrequencyyㅤ─ㅤENTRYㅤ:ㅤQUILL�
 
 $${\color{#9d6325}\text{⤷ㅤㅤheadmate within the ant hill collective}}$$
 
-,
+$${\color{#b39d29}\large\text{gryphon ╱ quillㅤ─ㅤ" ace of spades "}}$$
 
 $${\color{#c3d82b}\huge\text{♦ ♤ㅤaiwcㅤ♤ ♦}}$$
 
-$${\color{#b39d29}\large\text{he/it ㅤ᭥ㅤ minor}}$$
+.
 
 
 $${\color{#9d6325}\large\text{semi-fictiveㅤ─ㅤsourcemates f2i}}$$
