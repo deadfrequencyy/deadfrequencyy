@@ -49,7 +49,7 @@ $${\color{#9d6325}\large\text{close friends/party: ron, aether, vony, eden}}$$
 
 $${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
 
-<br><br>
+<br>
 
 <img src="https://64.media.tumblr.com/573d4f60fa1a2817e755a94084f80082/e5a0f91c189d8b09-a6/s250x400/4f4318b63919adbf75ddab5efa86a495c11ba11d.gifv" align="center">
 
