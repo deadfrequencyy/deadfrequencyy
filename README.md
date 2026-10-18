@@ -42,10 +42,15 @@ $${\color{#c3d82b}\large\text{kissingㅤ,ㅤrandom full covering (minus friends 
 $${\color{#c3d82b}\large\text{random friend requestsㅤ,ㅤrandom party invites}}$$
 
 $${\color{#b39d29}\large\text{「ⓘ」statuses:}}$$
+
 $${\color{#b39d29}\large\text{online: f2i , prob w/ friends}}$$
+
 $${\color{#b39d29}\large\text{lfc: int. enc. , likely bored}}$$
+
 $${\color{#b39d29}\large\text{lfr: acting in characterㅤ─ㅤi never use this one}}$$
+
 $${\color{#b39d29}\large\text{away: offtab for 10+ mins}}$$
+
 $${\color{#b39d29}\large\text{busy: working on something , on dni , hanging out w/ friends , or just really anxious}}$$
 
 $${\color{#9d6325}\large\text{「ⓘ」misc. info:}}$$
