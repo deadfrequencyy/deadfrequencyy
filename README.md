@@ -61,11 +61,11 @@ $${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
 
 <br>
 
+<img src="https://64.media.tumblr.com/ca4866b43e583e262f03ec4c7d601c19/e5a0f91c189d8b09-78/s250x400/9f5929e247791babb08fe86f7cdd06dbdf3e84f8.gifv" align="center">
+
 <img src="https://64.media.tumblr.com/3bbb3261db60b8623fad028b9a41b1da/e5a0f91c189d8b09-54/s250x400/63f76cb0b6972158167ff61db47eb79e201c41a4.gifv" align="center">
 
 <img src="https://64.media.tumblr.com/d0eda044e16722a4a3166e31ce4ec6f5/e5a0f91c189d8b09-49/s250x400/2ef427f5ef9b3646208b575bdbd159c9e8a02fd6.gifv" align="center">
-
-<img src="https://64.media.tumblr.com/ca4866b43e583e262f03ec4c7d601c19/e5a0f91c189d8b09-78/s250x400/9f5929e247791babb08fe86f7cdd06dbdf3e84f8.gifv" align="center">
 
 <br>
 <br>
