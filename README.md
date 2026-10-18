@@ -61,11 +61,11 @@ $${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
 
 <br>
 
-<img src="https://64.media.tumblr.com/573d4f60fa1a2817e755a94084f80082/e5a0f91c189d8b09-a6/s250x400/4f4318b63919adbf75ddab5efa86a495c11ba11d.gifv" align="center">
+<img src="https://64.media.tumblr.com/3bbb3261db60b8623fad028b9a41b1da/e5a0f91c189d8b09-54/s250x400/63f76cb0b6972158167ff61db47eb79e201c41a4.gifv" align="center">
 
-<img src="https://64.media.tumblr.com/fec3f27de8931ae35f44c3f18a8e8cee/e5a0f91c189d8b09-3c/s250x400/4bc1f4af9c681d59878e26efb576e1a8f5700e7e.gifv" align="center">
+<img src="https://64.media.tumblr.com/d0eda044e16722a4a3166e31ce4ec6f5/e5a0f91c189d8b09-49/s250x400/2ef427f5ef9b3646208b575bdbd159c9e8a02fd6.gifv" align="center">
 
-<img src="https://64.media.tumblr.com/f76d8da5bf3c7489899723c856fd5a37/e5a0f91c189d8b09-04/s250x400/ea013eb271fa7620f65b79cd1d8746d92caf8233.gifv" align="center">
+<img src="https://64.media.tumblr.com/ca4866b43e583e262f03ec4c7d601c19/e5a0f91c189d8b09-78/s250x400/9f5929e247791babb08fe86f7cdd06dbdf3e84f8.gifv" align="center">
 
 <br>
 <br>
