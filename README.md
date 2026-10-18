@@ -76,6 +76,50 @@ $${\color{#9d6325}\large\text{+ w2i is usually preferred for small exchanges}}$$
 </table>
 </details>
 
+<details>
+<summary></summary>
+<br>
+<table align="center">
+<tr>
+<td align="center">
+
+<img src="https://64.media.tumblr.com/26d471f804a19df724b35f4ab448da5d/e5a0f91c189d8b09-e4/s500x750/16fd73fc9fc0440f94ecca3b9124ba16ece26349.pnj" align="left" width="300px">
+
+<td align="center">
+<br><br>
+
+$${\color{#9d6325}\huge\text{⤷ㅤㅤmore about me!}}$$
+
+<br>
+
+$${\color{#b39d29}\large\text{i'm not shadow! we're not the same person!!}}$$
+
+$${\color{#b39d29}\large\text{semi = partialㅤ─ㅤi'm not fully a fictive}}$$
+
+<br>
+
+$${\color{#c3d82b}\large\text{source talk is okay, just}}$$
+
+$${\color{#c3d82b}\large\text{don't expect me to have any memories}}$$
+
+<br>
+
+$${\color{#b39d29}\large\text{doubles aren't a thing 4 me, again, i'm not shadow}}$$
+
+$${\color{#b39d29}\large\text{i AM okay with shadows interacting though, just to clarify}}$$
+
+<br>
+
+$${\color{#9d6325}\large\text{idk what else 2 put here but i made the art here so that's cool ig}}$$
+
+<br>
+<br>
+
+</td>
+</tr>
+</table>
+</details>
+
 <br><br>
 
 $${\color{#8d2626}\large\text{✦ . ㅤ  ㅤㅤㅤㅤㅤㅤㅤEND ENTRYㅤㅤㅤ ㅤㅤㅤㅤ ㅤ . ✦}}$$
@@ -91,3 +135,25 @@ $${\color{#8d2626}\large\text{✦ . ㅤ  ㅤㅤㅤㅤㅤㅤㅤEND ENTRYㅤㅤㅤ
 <a href="https://prns.cc/nnuetm" align="center">pronouns.cc</a>
 
 </div>
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+<details>
+  <summary></summary>
+  <br>
+  <img src="https://64.media.tumblr.com/d6880dc04810cbc8a75df7b09c57ab5e/e5a0f91c189d8b09-4f/s500x750/8bfbf4fc4ea6b122039f71a85d043595fd9d1a5f.pnj" width="300px">
+  <br>
+  <br>
+
+$${\color{#c3d82b}\large\text{secret bonus non-gradient map version}}$$
+  
+</details>
