@@ -38,7 +38,7 @@ $${\color{#b39d29}\large\text{c+h/cudcomf unless on dni(uf)ㅤ,ㅤboopingㅤ,ㅤ
 $${\color{#b39d29}\large\text{nuzzlingㅤ,ㅤpartial covering (esp. in crowded areas)}}$$
 
 $${\color{#c3d82b}\large\text{「✖」don't:}}$$
-$${\color{#c3d82b}\large\text{kissingㅤ,ㅤrandom full covering (uf)ㅤ,ㅤanyth inappropriate}}$$
+$${\color{#c3d82b}\large\text{kissingㅤ,ㅤrandom full covering (minus friends + piles)ㅤ,ㅤanyth inappropriate}}$$
 $${\color{#c3d82b}\large\text{random friend requestsㅤ,ㅤrandom party invites}}$$
 
 $${\color{#b39d29}\large\text{「ⓘ」statuses:}}$$
