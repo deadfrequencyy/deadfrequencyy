@@ -34,11 +34,11 @@ $${\color{#8d2626}\huge\text{‧₊˚ ⋅ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅ .𖥔 ݁ 
 $${\color{#9d6325}\huge\text{⤷ㅤㅤpony town info}}$$
 
 $${\color{#b39d29}\large\text{「✔」okay:}}$$
-$${\color{#b39d29}\large\text{c+h/cudcomf unless on dni(uf)ㅤ,ㅤboopingㅤ,ㅤinspo}}$$
+$${\color{#b39d29}\large\text{c+h/cudcomf unless on dni(uf)ㅤ,ㅤboopingㅤ,ㅤinspo (ask)ㅤ,ㅤkisses/P}}$$
 $${\color{#b39d29}\large\text{nuzzlingㅤ,ㅤpartial covering (esp. in crowded areas)}}$$
 
 $${\color{#c3d82b}\large\text{「✖」don't:}}$$
-$${\color{#c3d82b}\large\text{kissingㅤ,ㅤrandom full covering (minus friends + piles)ㅤ,ㅤanyth inappropriate}}$$
+$${\color{#c3d82b}\large\text{int just for shipsㅤ,ㅤrandom full covering (minus friends + piles)ㅤ,ㅤanyth inappropriate}}$$
 $${\color{#c3d82b}\large\text{random friend requestsㅤ,ㅤrandom party invites}}$$
 
 $${\color{#b39d29}\large\text{「ⓘ」statuses:}}$$
