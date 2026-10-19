@@ -137,8 +137,6 @@ $${\color{#8d2626}\large\text{✦ . ㅤ  ㅤㅤㅤㅤㅤㅤㅤEND ENTRYㅤㅤㅤ
 <br>
 <br>
 
-<a href="https://prns.cc/nnuetm" align="center">pronouns.cc</a>
-
 </div>
 
 <br>
